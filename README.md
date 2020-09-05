@@ -5,5 +5,9 @@
 ### ⭐️ 👉 最新地址②：https://caoyise.icu
 ## 导 航 永 久 域 名 	www.caoyise.com
 ## ‼️請使用Ctrl+D進行收藏此页面!
-### ⭐️ 👉 备用发布页 ：https://caoyise.neocities.org
-### 📧 邮箱联系方式: caoyise@gmail.com （发送任意内容获取最新地址）
+
+### ⭐️ 备用发布页 ：
+https://caoyise.neocities.org
+https://about.me/caoyise
+
+### 📧 邮箱联系方式: caoyise@gmail.com
