@@ -2,7 +2,7 @@
 
 ### ‼️长按复制到浏览器里面访问网址‼️
 ### ⭐️ 👉 最新地址①：https://caoyise.xyz
-
+### ⭐️ 👉 最新地址②：https://caoyise.icu
 ## 导 航 永 久 域 名 	www.caoyise.com
 ## ‼️請使用Ctrl+D進行收藏此页面!
 ### ⭐️ 👉 备用发布页 ：https://caoyise.neocities.org
