@@ -2,13 +2,12 @@
 
 ### ‼️长按复制到浏览器里面访问网址‼️
 
-### ⭐️ 👉 最新地址：https://caoyise.fun/
+### ⭐️ 👉 2021.5最新地址：https://caoyise.pw/
 
 ## ‼️請使用Ctrl+D進行收藏此页面!
 
-### ⭐️ 备用发布页 ：
-### https://caoyise.neocities.org
-### https://about.me/caoyise
+### ⭐️ 最新地址发布页 ：
+### https://fabu.home.blog/
 
 ### 📧 邮箱联系方式: caoyise@gmail.com
 ### 尽量用谷歌浏览器、火狐浏览器。国产浏览器会屏蔽网址，比如夸克、QQ浏览器等等会屏蔽敏感网址。
