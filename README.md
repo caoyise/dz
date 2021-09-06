@@ -1,14 +1,21 @@
-# ⭐️草一色导航⭐️ 最新地址发布页 
+### ⭐️草一色导航⭐️ 地址发布页
 
-### ‼️长按复制到浏览器里面访问网址‼️
+👉 最新地址：https://caoyise.site
 
-### ⭐️ 👉 最新地址：https://caoyise.site/
+永久发布页地址：https://草一色.com
 
-## ‼️請使用Ctrl+D進行收藏此页面!
+请牢记永久地址， Ctrl+D 收藏本页，方便找到回家的路!
 
-### ⭐️ 最新地址发布页 ：
-### https://fabu.home.blog/
+👉 备用地址发布页 ：
 
-### 📧 邮箱联系方式: caoyise@gmail.com
-### 尽量用谷歌浏览器、火狐浏览器。国产浏览器会屏蔽网址，比如夸克、QQ浏览器等等会屏蔽敏感网址。
-### 安卓手机下载 via浏览器、谷歌浏览器、火狐浏览器试试，苹果手机用谷歌浏览器或者自带浏览器试试。
+① https://caoyise.gitbook.io/fabu
+
+② https://www.ebay.com/usr/caoyise
+
+③ https://fabu.home.blog
+
+📧 最新地址索取邮箱: caoyise@gmail.com
+
+(发送任意邮件到此邮箱可自动获取最新地址)
+
+‼️近期部分国产浏览器屏蔽网址，电脑请安装Chrome浏览器访问，手机请安装Alook浏览器、X浏览器访问。
