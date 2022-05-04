@@ -1,6 +1,6 @@
 ### ⭐️草一色导航⭐️ 地址发布页
 
-👉 最新地址：https://caoyise.us
+👉 最新地址：https://caoyise.live
 
 永久发布页地址：https://草一色.com
 
